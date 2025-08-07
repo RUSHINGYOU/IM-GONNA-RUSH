@@ -8,7 +8,7 @@ my other favourite characters ig
   /> <img width="300" height="168" alt="image" src="https://github.com/user-attachments/assets/ae52f660-ed19-402a-a1ee-8593a66e6070" />
 <img width="225" height="225" alt="image" src="https://github.com/user-attachments/assets/473d9c2d-2152-4471-9fa7-4c0a9ce60a54" /> <img width="225" height="224" alt="image" src="https://github.com/user-attachments/assets/03a9e38e-69a2-41f8-a32c-28643c5a2a33" />
 
-doors n tds fans can we be moots plz....
+doors fans can we be moots plz....
 
 
 
